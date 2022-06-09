@@ -1,0 +1,1 @@
+"PATİKA" eğitimleri altında, HTML bölüm sonu çalışma alıştırması!
